@@ -1,4 +1,4 @@
-#  
+#  get strong for brainrots no-ban Script is the best get strong for brainrots Script, featuring no clip and infinite resources. Safe and powerful for
 
 
 
